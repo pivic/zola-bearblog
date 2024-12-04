@@ -1,0 +1,35 @@
+---
+title : "Timbro tankesmedja - intellectual death"
+author : "Niklas"
+date : "2005-10-13"
+categories : 
+ - heroes
+ - insane
+ - politics
+---
+
+As I'm reading Sam Harris' "The End of Faith: Religion, Terror and the Future of Reason", I've come to page 29, where the following is mentioned regarding the planes crashing into America on 2001-09-11:
+
+> Why did nineteen well-educated, middle-class men trade their lives in this world for the privilege of killing thousands of our neighbors? Because they believed they would go straight to paradise for doing so. \[...\] The consessions we have made to religious faith--to the idea that belief can be sanctified by something other than _evidence_\--have rendered us unable to name, much less address, one of the mest pervasive causes of conflict in our world.
+
+This is, of course, not only applicable to faith, but any matter where evidence is not apparent.
+
+Today, Tiina Rosenberg (whom [I've written about before](https://niklasblog.com/?p=795)) has resigned from politics, not only because she is constantly under attack from homophobes and anti-feminists, but also because she has been indirectly threatened by a right-winged group of people calling themselves "[Timbro tankesmedja](http://www.smedjan.com)" (which translates as "Timbro thought-forge"). Exactly what does said threat consist of? I will tell you.
+
+In [this article](http://www.dn.se/DNet/jsp/polopoly.jsp?d=572&a=473303&previousRenderType=6) \[in Swedish\], posted today in [DN](http://www.dn.se), Rosenberg publicly explains why she has now decided to leave the board of Feministiskt Initiativ (Fi), one of the reasons being the indirect threat: Rosenberg recently received a book, a thriller sent by Timbro tankesmedja, with a note. The note read as follows \[my translation\]:
+
+> Hello, Tiina! This is a book about a frustrating existence where one after the other goes missing. A situation which probably isn't unheard of.
+
+How nice. Apart from attacking the Swedish government with false claims (see my notes about Johan Tralau's mad and anti-intellectual attack on Rosenberg and the Swedish government [here](https://niklasblog.com/?p=795)), said "thought-forge", of which Tralau is a member, may be using mafia tactics. According to Cecilia Stegö Chilà³ at Timbro, Rosenberg has left out a part of the note, reading "deflects and goes missing" instead of "goes missing". In [this article](http://www.dn.se/DNet/jsp/polopoly.jsp?d=1042&a=473651&previousRenderType=6) in DN today, Stegö Chilà³ adds that the book has been sent to "several" people in Sweden, and not just to her. She adds that she does not feel sorry for Rosenberg.
+
+According to Rosenberg, Tralau is also an anti-feminist and anti-abortionist. It's also apparent that Tralau has not read Rosenberg's book, but a flawed review of it, and based his damnation of Rosenberg's professorship, along with accusing the Swedish government for letting a person with female gender "pass before academic merits", on that. I wonder if Tralau manages to sleep at night.
+
+To iterate on the sheer intellectual value of Timbro tankesmedja: my friend Rade recently wrote [this angry post](http://juvenal.wordpress.com/2005/10/07/the-nobel-peace-prize-mc-donalds-and-dubya) regarding a statement by another member of Timbro tankesmedja, namely Johnny Munkhammar. On the day that the Nobel Prize Committee were to announce the winner of the Nobel Peace Prize, he was part of a panel of people discussing who deserved it most, and came up with two nominees. McDonalds and George W. Bush/Tony Blair.
+
+In his letter to Rade, he quoted [this speech (as read) by Bush](http://www.whitehouse.gov/news/releases/2005/10/20051006-3.html), saying Bush and Blair have "[liberated 50 million people from oppression](http://juvenal.wordpress.com/2005/10/07/the-nobel-peace-prize-mc-donalds-and-dubya/#comment-2)". Of course, Bush said "It is courage that liberated more than 50 million people", but let Munkhammar equal the word "courage" with Bush/Blair. It's a free world. Only, our world [wouldn't be very free if Bush/Blair reigned](http://www.truthout.org/docs_2005/101005Q.shtml), which apparently does not bother Munkhammar. He is not even bothered with critique of his source: if we all would actually believe all statements made by our governments, we would have a lot of problems. Remember the words of Juvenal: "Who watches the watchmen?" This is especially noteworthy, as Bush frequently, since the advent of 2001-09-11, refers to biblical passages in his speeches, and at times replaces "God" with "the USA", when lifting passages. That's a tad risqué, don't you find? You can see much more about how Bush and his administration caters to the American extreme christians in the excellent documentary titelled "The Jesus Factor", streamable in its entirety, for free, [here](http://www.pbs.org/wgbh/pages/frontline/shows/jesus/view).
+
+So, apart from the fact that Munkhammar believes George/Tony should have the prize, his other nominee was McDonalds - one of the most fierce corporations in history, that is, like every other corporation on this planet, motivated solely by making as much money as possible - that he thinks should be awarded the Nobel Peace Prize. Please, see "[The Corporation](http://www.thecorporation.com)" before you note another thing about the true goal of corporations. Munkhammar says McDonalds should receive it as they "work for openness, trade and exchange between countries" which "in turn, leads to peace". He doesn't say anything about what this corporation wants, what they trade, what said "openness" or "exchange" consists of. However, judging by his standards in that statement, Hitler wanted peace. Bush evidently wants peace in the same way (which is especially noteworthy in [appointing John Bolton as ambassador for the USA, in the UN](https://niklasblog.com/?p=521)). HalliBurton definitely wants peace.
+
+I say McDonalds aren't about openness in the least. For a popular stance on how open they truly are, and how much worth their products truly carry, see Morgan Spurlock's "[Super Size Me](http://www.imdb.com/title/tt0390521)".
+
+All in all, I haven't checked out Timbro tankesmedja more than this. Of course, the above claims by a couple of their members are atricious, and their indirect threat against Rosenberg is a direct threat against democracy as a whole, but I'm not saying they're wholly devoid of any form of intellectual thought - simply because I haven't wholly checked them out. What I hope my quoting Harris makes clear, is that when one is debating, driven by emotions instead of carrying facts and intellectual capacity, one should look oneself in the mirror once an hour and say "I'm not making any factual claims. I'm simply talking rubbish that has no basis in reality." Then, either mend your ways or don't make these claims in the reality in which many of us happen to live, because it only adds to the rubbish-pile. How would you like to be remembered: as an intellectual person who can back claims and stand by them, or as hot air with as much worth (in every way) as a cheeseburger courtesy of McDonalds?

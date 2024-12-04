@@ -1,0 +1,9 @@
+---
+title : "Not being able to sleep"
+author : "Niklas"
+date : "2012-08-20"
+categories : 
+ - health
+---
+
+and it's intolerable but then I feel tranquil but for a second somethings between me and it's nostrils of fangs and tweaked-out nothings like 50000 shivering worries that make me think I shouldn't open my eyes just go back to bed but I'm _in_ bed and I can't I shouldn't think more maybe I'll sleep then or how long has this been going on does it matter will the alarm wake me or will I sleep past it? Or should I set another alarm and see if that will help god my arms are quivering like a billion baby dogs are looking for the teat over my skin which is almost also twitching like a bad caffeine trip and shouldn't I really be sleeping now and I can't focus and I'm too tired to read and watching tv is the last thing I want so maybe try to relax and here comes the onslaught of the coffee kick which I drank a whole bunch of hours ago so that can't be it and if I were at a friend's place right now I'd be "right, time to go home now" but I'm at home and I'm alone apart from hearing my cat being very very silent apart from breathing and I'm suddenly writing this down and it's better than any writing than I've done in months and it's a simple trick but being less focused could be just the ticket, to paraphrase Spud from "Trainspotting" and i can't wait to get up in the morning if I'd only slept for say a ten hours straight but if I'd go now it'd be approximately 3 hours and I've probably slept one so far and the cat is now purring and i feel even more alone in all of this but I know sleep will come at some point even though it feels far away and I suddenly wish X would be here and that she would read "The Little Prince" to me aloud and we would fall asleep together and all would be well. Yes that sounds great

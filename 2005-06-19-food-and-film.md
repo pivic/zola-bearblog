@@ -1,0 +1,20 @@
+---
+title : "Food and film"
+author : "Niklas"
+date : "2005-06-19"
+categories : 
+ - fooddrink
+ - video
+---
+
+Today has been a calm and quite warm day. Mikaela and I went to Karolinska sjukhuset, a nearby hospital. After spending two hours in that drab place we went to ICA Kvantum, a supermarket where we got fresh vegetables, chicken cutlets and a few other bits. We went home, and Mikaela cooked the cutlets in the oven, having smeared them with a lovely oil mixed with our home-grown oregano and rosemary. Delicious! As Mikaela said, the chicken should have marinated a longer time, but the meat was very tender. The greatness of the vegetables that followed it really kicked in, too; grilled carrots, leeks and potatoes cut in half, sliced fresh garlic...oh, the taste-sensations. Wow!
+
+I was set to meet Jesper in town for a beer or two, but considering I had a head-ache at the time plus the fact that my body couldn't take another day of drinking, I skipped it. Instead, Mikaela went to her parents' place to pick up some rustic olive oil her father got her; I'm already waiting to try it! Imagine a nice bruschetta with really good olive oil. That's magic. Anyway, while Mikaela was visiting her parents' house, I tried to watch "[Hellraiser: Deader](http://imdb.com/title/tt0337636)". What a shit film. I shouldn't really write that, come to think of it, as I didn't watch it full through; I couldn't even concentrate on the murders. Everything that the first Hellraiser film contained and [the third one](http://imdb.com/title/tt0104409) held as cool, this one just ruined. Were the "[Warlock](http://imdb.com/title/tt0108517)" films never made?
+
+To come to my senses, I watched a film I've had since its release, yet not yet seen. "[Mama Roma](http://www.criterionco.com/asp/release.asp?id=236)" by [Pier Paolo Pasolini](http://imdb.com/name/nm0001596), was really good. I really liked the contrasts in the film, and it's always evident when Criterion has been involved in restoring a film like this to greatness. Their extreme interest and affection for detail should be commended. Anyway, some details in this film irritated me, but they were few and far between compared with what the film gave. The soundtrack was very good, as Tonino Delli Colli, Pasolini's cinematographer of choice, states, it's more of a guiding soundtrack than a leading one. I hate soundtracks that are too Wagnerish, too pompous and blatant. Some might say that this soundtrack sucked because the main theme was repeated throughout, across all types of scenes, and hence was scrambled together out of laziness, yet I think it suited the gist of the film perfectly; everything just flowed. The film didn't have the usual Hollywoodesque start-middle-end, which suited me fine. Even the over-the-top biblical references worked, as did the incestous sub-plot. The cinematography was very interesting. Delli Colli worked with Pasolini since his first film, when Pasolini did not (according to Delli Colli) even know what a lens was; on "Mamma Roma" they used a 50-lens, which displayed the background quite visibly, making it as focused as the foreground. Kubrick used a similar technique when shooting "[Barry Lyndon](http://imdb.com/title/tt0072684)"; he wanted the film to resemble renaissance paintings as much as possible in that aspect. In those paintings, every detail was as focused as the next, despite of their individual depth. I believe Kubrick hacked a Hasselblad camera to pieces and constructed a new type of lens, to come up with the result. Your average Kubrick move. Astounding, yet expected, when you've read his resumé and heard the following quote from the man himself: "I don't know what I want, but I know what I don't want." Anyway, due to using different types of exposures of the film, the contrast turned out really harsh, producing a very hard effect.
+
+"Mamma Roma" was wonderful and hard. Here's a quote from the picture:
+
+> The evil you do is like a highway the innocent have to walk down.
+
+Now to bed. Mikaela's already sleeping, not wanting to turn the hours upside down by staying up till the early morning. I'll head to bed now.

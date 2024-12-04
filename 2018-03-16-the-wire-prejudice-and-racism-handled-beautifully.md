@@ -1,0 +1,33 @@
+---
+title : "The Wire: prejudice and racism handled beautifully"
+author : "Niklas"
+date : "2018-03-16"
+categories : 
+ - culture
+ - heroes
+ - insane
+ - people
+ - politics
+---
+
+[![](https://niklasblog.com/wp-content/the-wire.jpg)](https://niklasblog.com/wp-content/the-wire.jpg)
+
+From the wondrously crafted "[_All the Pieces Matter: The Inside Story of the Wire_](https://www.goodreads.com/book/show/35673878-all-the-pieces-matter)" by Jonathan Abrams:
+
+_The Wire carefully picked moments to unravel the myth of Omar and his beliefs. One opportune moment presents itself in the Season 2 episode “All Prologue.” On the witness stand, Omar identifies Marquis “Bird” Hilton as the killer of a state witness, William Gant. The writing made clear that Bird had likely murdered Gant, and that Omar was not present at the time of the killing. Upon cross-examination, Bird’s lawyer, Maurice Levy, describes Omar as “a parasite who_ leaches _off the culture of drugs.” “Just like you, man,” Omar interrupts. “I got the shotgun. You got the briefcase. It’s all in the game though, right?”_
+
+_The moment is one of the few times in the series that Levy, played by Michael Kostroff (the brother of Nina Noble), is flustered. Kostroff said he appreciated the scene and the ability to show another side of Levy, often remembered as conforming to Jewish stereotypes. “If we only told stories where people didn’t fall into different stereotypes, it would be really false, so I had no problem playing what some may call a Jewish stereotype,” Kostroff said. “I do believe that there are corrupt, successful Jewish lawyers. Rhonda Pearlman is also a Jewish character, and she’s on the side of good. I think people noticed it more because Deirdre Lovejoy doesn’t appear to be Jewish, so I think people don’t notice the fact that_ there’s _two Jewish characters on both sides of the law. But I think we’ve gotten a little bit too careful about telling those stories. The Wire showed us black drug dealers and black elected officials and good guys and bad guys, and thank God for that range. But if we objected to the portrayal of black drug dealers, we wouldn’t have that show.”_
+
+**MICHAEL KOSTROFF (MAURICE “MAURY” LEVY)**: The one thing about Levy is, he’s a good strategist, and not only does he enjoy being a good strategist, but he enjoyed showing everybody the strategy that he’s come up with and how he’s going to win an impossible case. He never saw that coming, particularly from a street thug, and Omar presented a really, really valid debate at that point and took him down in front of people. It was just something that he wasn’t accustomed to encountering.
+
+I made a decision about Levy pretty early on, which is ugly to hear, but \[it\] really served the character. When I saw the phrase “You people” in the first episode, that tells me a lot, as somebody who’s grown up around black people. I know what that means. “You people” is a racist term. I made the decision that he was very happy to work for these guys, but really didn’t have a high opinion of black folks. What’s delicious in particular to me about that scene is that he’s taken down by somebody that he would have dismissed as not intellectual and not capable of forming that valid argument. That’s what I loved about it. It hits him out of nowhere, because Omar is also a great strategist and also kind of brilliant. I think that’s what I love, is that \[Levy is\] shut down by the person that he thinks is just a stupid animal.
+
+**STEVE SHILL (DIRECTOR)**: It was shot in a real courtroom that was actually active at the time. Normally, you would shoot overnight, but for some reason we couldn’t. It was an active courthouse in Baltimore. The video village was around the back, and around the back was the corridor where defendants were being led back and forth from the cell holds to their respective courtroom. I’m sitting at video village with people being led past us in chains for real. It was frankly awful. It’s one of the most awful things that I’d ever been involved in. I would say that this is a quintessential David Simon moment. He brought us there because this is one of the places where he had sat as a reporter for twenty years reporting on this stuff, and this is what he knew. He brought us to the real place, and by accident we ended up shooting there during working hours.
+
+I can’t tell you how guilty I felt for sitting there as some jerk-off television director making money fictionalizing what’s happening to these people for real. David Simon’s thrust was to expose the injustice. Even talking about it right now, I still feel bad about it. I had to move my director’s chair out of their way so they could shuffle past in shackles. I feel like a piece of shit because of it.
+
+**JAMES “P.J.” RANSONE** (CHESTER “ZIGGY” SOBOTKA): The first season, you follow these black drug dealers around the streets of Baltimore and you go, “Oh my God, they’re trying to function as a business. Their capitalism is the same way everything else is.” Then you shift focus to the white working class, right? What you really take away from that is those people are just as trapped in the machine of capitalism as the drug dealers are.
+
+People go like, “The White Season.” It’s always weird to me because it’s like, no. They’re just like, incrementally a little bit more financially well off than the drug dealers. So, to me, the takeaway from that is people go, “Season Two is always the worst.” The reason why I think people think that is because it’s too much to reconcile the fact of whites in the same terms of social mobility as a poor black person. They hate to admit it to themselves. It’s too much to reconcile the fact that white people are enslaved to their own social class as much as poor black people. They would have to give up the delusion that they can be wealthy one day, working honestly within the contexts of the system.
+
+Think about where we are as a country today. People make these great hyperbolic comparisons to \[Donald\] Trump and Adolf Hitler, and it’s really wrong. Trump has benefited completely from a system of debt, right? Borrowing against your perceived value. What he’s really tapping into is exactly what I’m talking about: is the delusion that you think because you are a certain sort of skin color that you are afforded more social mobility than other races or cultures. And that’s just simply not true. A politician will use that in terms of going, “See, the problem isn’t me. It’s these other people working right next to me.” But if they were to compare their pay stubs, they’d see that they had more in common with that person than they would hope for.
