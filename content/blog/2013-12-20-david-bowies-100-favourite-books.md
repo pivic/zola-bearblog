@@ -1,0 +1,112 @@
+---
+title : "David Bowie’s 100 favourite books"
+author : "Niklas"
+date : "2013-12-20"
+categories : 
+ - reading
+---
+
+Do it like Bowie, get indulged in books.
+
+https://www.facebook.com/photo.php?fbid=10151603205387665&l=f8e3a562b6
+
+- Interviews With Francis Bacon by David Sylvester
+- Billy Liar by Keith Waterhouse
+- Room At The Top by John Braine
+- On Having No Head by Douglass Harding
+- Kafka Was The Rage by Anatole Broyard
+- A Clockwork Orange by Anthony Burgess
+- City Of Night by John Rechy
+- The Brief Wondrous Life Of Oscar Wao by Junot Diaz
+- Madame Bovary by Gustave Flaubert
+- Iliad by Homer
+- As I Lay Dying by William Faulkner
+- Tadanori Yokoo by Tadanori Yokoo
+- Berlin Alexanderplatz by Alfred Döblin
+- Inside The Whale And Other Essays by George Orwell
+- Mr. Norris Changes Trains by Christopher Isherwood
+- Halls Dictionary Of Subjects And Symbols In Art by James A. Hall
+- David Bomberg by Richard Cork
+- Blast by Wyndham Lewis
+- Passing by Nella Larson
+- Beyond The Brillo Box by Arthur C. Danto
+- The Origin Of Consciousness In The Breakdown Of The Bicameral Mind by Julian Jaynes
+- In Bluebeard’s Castle by George Steiner
+- Hawksmoor by Peter Ackroyd
+- The Divided Self by R. D. Laing
+- The Stranger by Albert Camus
+- Infants Of The Spring by Wallace Thurman
+- The Quest For Christa T by Christa Wolf
+- The Songlines by Bruce Chatwin
+- Nights At The Circus by Angela Carter
+- The Master And Margarita by Mikhail Bulgakov
+- The Prime Of Miss Jean Brodieby Muriel Spark
+- Lolita by Vladimir Nabokov
+- Herzog by Saul Bellow
+- Puckoon by Spike Milligan
+- Black Boy by Richard Wright
+- The Great Gatsby by F. Scott Fitzgerald
+- The Sailor Who Fell From Grace With The Sea by Yukio Mishima
+- Darkness At Noon by Arthur Koestler
+- The Waste Land by T.S. Elliot
+- McTeague by Frank Norris
+- Money by Martin Amis
+- The Outsider by Colin Wilson
+- Strange People by Frank Edwards
+- English Journey by J.B. Priestley
+- A Confederacy Of Dunces by John Kennedy Toole
+- The Day Of The Locust by Nathanael West
+- 1984 by George Orwell
+- The Life And Times Of Little Richard by Charles White
+- Awopbopaloobop Alopbamboom: The Golden Age of Rock by Nik Cohn
+- Mystery Train by Greil Marcus
+- Beano (comic, ’50s)
+- Raw (comic, ’80s)
+- White Noise by Don DeLillo
+- Sweet Soul Music: Rhythm And Blues And The Southern Dream Of Freedom by Peter Guralnick
+- Silence: Lectures And Writing by John Cage
+- Writers At Work: The Paris Review Interviews edited by Malcolm Cowley
+- The Sound Of The City: The Rise Of Rock And Roll by Charlie Gillete
+- Octobriana And The Russian Underground by Peter Sadecky
+- The Street by Ann Petry
+- Wonder Boys by Michael Chabon
+- Last Exit To Brooklyn By Hubert Selby, Jr.
+- A People’s History Of The United States by Howard Zinn
+- The Age Of American Unreason by Susan Jacoby
+- Metropolitan Life by Fran Lebowitz
+- The Coast Of Utopia by Tom Stoppard
+- The Bridge by Hart Crane
+- All The Emperor’s Horses by David Kidd
+- Fingersmith by Sarah Waters
+- Earthly Powers by Anthony Burgess
+- The 42nd Parallel by John Dos Passos
+- Tales Of Beatnik Glory by Ed Saunders
+- The Bird Artist by Howard Norman
+- Nowhere To Run The Story Of Soul Music by Gerri Hirshey
+- Before The Deluge by Otto Friedrich
+- Sexual Personae: Art And Decadence From Nefertiti To Emily Dickinson by Camille Paglia
+- The American Way Of Death by Jessica Mitford
+- In Cold Blood by Truman Capote
+- Lady Chatterly’s Lover by D.H. Lawrence
+- Teenage by Jon Savage
+- Vile Bodies by Evelyn Waugh
+- The Hidden Persuaders by Vance Packard
+- The Fire Next Time by James Baldwin
+- Viz (comic, early ’80s)
+- Private Eye (satirical magazine, ’60s – ’80s)
+- Selected Poems by Frank O’Hara
+- The Trial Of Henry Kissinger by Christopher Hitchens
+- Flaubert’s Parrot by Julian Barnes
+- Maldodor by Comte de Lautréamont
+- On The Road by Jack Kerouac
+- Mr. Wilson’s Cabinet of Wonders by Lawrence Weschler
+- Zanoni by Edward Bulwer-Lytton
+- Transcendental Magic, Its Doctine and Ritual by Eliphas Lévi
+- The Gnostic Gospels by Elaine Pagels
+- The Leopard by Giusseppe Di Lampedusa
+- Inferno by Dante Alighieri
+- A Grave For A Dolphin by Alberto Denti di Pirajno
+- The Insult by Rupert Thomson
+- In Between The Sheets by Ian McEwan
+- A People’s Tragedy by Orlando Figes
+- Journey Into The Whirlwind by Eugenia Ginzburg

@@ -1,0 +1,39 @@
+---
+title : "“The End of Eddy”: an extract from this brilliant book"
+author : "Niklas"
+date : "2017-06-08"
+categories : 
+ - culture
+ - people
+ - reading
+---
+
+[![](https://niklasblog.com/wp-content/2017-06-08_13-09-39.jpg)](https://niklasblog.com/wp-content/2017-06-08_13-09-39.jpg)
+
+I recently started reading **Édouard Louis**'s "_The End of Eddy_", an autobiographical book on his growing up in a poor family, deeply inside of a patriarchal society. The book starts with a scene from school, where two boys spit in his face; violence is a common occurrence throughout the book, because it was in his life.
+
+He describes himself as an effeminate child that grew up in a tough, "manly" home, where _men are men_ and women are simply less than that. And where having a penis and being effeminate definitely was something worse than being a woman. So he was shunned and bullied when his so-called peers had the chance, i.e. most of the time.
+
+The quotes below are from a part of the book which, I think, displays the corners of the patriarchy, and what it does to men. It simply displays how persons who identify as men mentally drain themselves, and become part of a very denigrating culture, where The Man is at the top of the chain, while at its core being the most empty shell of a person, really.
+
+I've only read a fourth of this book so far, but I can safely testify that it's one of the best autobiographies I've read in my life. It's not nearly about about what Eddy thinks or does, as it shines a light on the idiots who somehow pick on him, including his family. This book is so much more than a vengeful, bitter look back; it's really a contemplative, diary-ish look back, on how things were, and also, on how things changed for Eddy in a variety of ways:
+
+> Like all the men in the village, my father was violent. And my mother, like all the women in the village, complained about her husband’s violence. She complained, in particular, about his behavior when he was drunk _You never know what’s going to happen with your father when he’s plastered. Either he gets horny, and then he’s a total pain in the ass, all over me, wearing me out with kisses and his I-love-you-so-much talk, or else he gets mean. That’s what he is mostly and I’ve had it up to here, ’cause then it’s like you fat bitch and you old bag. He won’t leave me alone._
+
+> It was my mother who noticed that he was beating my sister. She was on her way home from the bakery where my sister worked the register. My mother thought she had looked strange, out of sorts, pale _She was as white as a baby’s backside, and she added I think, I’m not totally sure but I’m not crazy, she’s my daughter so I’m almost sure, I changed her damn diapers, I can tell when something’s not right. I’m not an idiot. I saw that mark beneath her eye, it looked like that jerk had beat her up._
+> 
+> The next day my sister dropped by to visit my parents. She came over to watch a movie and talk with my mother a bit _You know you can’t talk to men about clothes._ And indeed she had a violet and yellow mark under her right eye. For a few minutes, when she first arrived, my parents didn’t say anything, but then my father said—or more accurately, he _exploded_—but in a deceptively calm way, without raising his voice, with a kind of restrained ferocity, or controlled violence _What have you got under your eye?_ Then the panic in my sister’s face, her stammering. Even before she spoke a single word, we all knew she was getting ready to lie. She said it was nothing _I tripped on the stairs and ran into something_, before adding some kind of a joke to hide her discomfort—since she could already tell we knew she was lying, _I mean, you know me, I’m never looking where I’m going, I can be a real moron sometimes._ My father kept looking at her, more and more angry, less and less able to conceal the state he was in. Fury contorted his face, like when he punched the walls. He asked her if she thought he was a fool. He said he didn’t ever want to see her again if she was going to stay with that guy, and he didn’t see her again for several months. We knew he was overreacting: it wasn’t my sister’s fault. But once again he hadn’t been able to control his temper. In fact he hardly ever tried to do so, and moreover he bragged about it _I’ve got a temper, you know, I don’t take any shit, and when I go off, I go off._ That was his way of being a man. He liked best of all the days when it was my mother who took the initiative, when she was the one to say _What can you do, that’s the way he is, my Jacky, he’s a man and that’s how men are, doesn’t take much to make him angry, and it’s not easy to calm him down._ On days like that he would pretend not to hear, but a proud smile would play over his lips.
+
+> Then came the fight. My father was forced to defend himself. I heard voices all mixed together, my mother pleading with my brother not to hit his father, to cut it out, and then my father, at his wits’ end, in tears, who could do no more than ask his opponent between two cries of pain (his back problems) _What do you think you’re doing? What’s going on?_ Finally Vincent _You aren’t my fucking parents, you can go to hell for all I care, just go to fucking hell._
+> 
+> Then I didn’t hear Vincent anymore. He had run away once he understood the seriousness of the situation. When I came out of the bathroom my father was down on the ground sobbing. He couldn’t stand up; he couldn’t even move. I saw the tightness in his immobilized body, especially in his eyes, which is where the tightness appears in a body that has suddenly been paralyzed, I saw him struggling to get up _Shit, I’m never gonna walk again in my life, I can tell, I’m screwed, I can tell._ My mother was panting, panicked, horrified, it was as if I could still see Vincent’s shadow in her face, as she asked me to help her pick up my father. I had plenty of experience carrying my paralyzed uncle when he fell out of his hospital bed. Pick up his legs while someone else picks up his arms. We tried to pick him up but we couldn’t. _He’s heavy as an ox_, my mother was saying. He let out cries of pain whenever we moved his body even a little bit.
+> 
+> My mother told me that we needed to call the doctor, we had no choice, my father’s back had gone out and she knew it, the only thing that could help were his shots.
+> 
+> It was barely an hour later when the doctor showed up. He gave him some shots, just as my mother had predicted. My father stayed lying down in the same position for more than ten days, and the doctor would come back every day to give him a shot and reassure him, _It’ll get better, Mr. Bellegueule. His reply, I doubt it, Doc, I pretty much doubt it, either I’ll be here the rest of my life like a vegetable or else this is it._
+> 
+> One afternoon while my father was waiting for the doctor, my mother let me know he wanted to tell me something. I was taken aback, accustomed as I was to the silence that existed between us. She sounded surprised too, and looked up to the sky. I went into the bedroom.
+> 
+> I walked up to the bed. My father held out something to me, a ring, his wedding ring. He asked me to put it on, to take care of it _Because I can tell, I have to tell you, your dad is gonna die, I can tell I won’t be able to hold on much longer. Something else I need to say, it’s that I love you, that you’re my son, no matter what, you’re my first kid_. I did not find this, as one might have expected, beautiful and moving. His I love you had repulsed me, the words had an incestuous feel to them.
+
+The Guardian has an interesting read from the book available [here](https://www.theguardian.com/books/2017/feb/01/the-end-of-eddy-by-edouard-louis-review), and Start The Week has [this podcast episode](http://www.bbc.co.uk/programmes/b08cqqd6) available where Louis speaks of his book and other things.
